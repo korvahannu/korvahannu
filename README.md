@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @korvahannu
+- 👀 I’m interested in ICT, new technology and music
+- 🌱 I’m currently studying information processing @ Oulu University
